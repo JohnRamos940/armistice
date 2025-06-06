@@ -109,7 +109,7 @@ as the results of this planned armistice, both towards unification with Ukraine 
 historical part of the Ukrainian Cossack Kuban and that such an annexation as autonomous republic of Ukraine with the same treatment 
 of full autonomy as in Adygea would give it access to the Caspian Sea, but given the presence of the Congress of the Oirat-Kalmyk People 
 which demands for full indepedence, there will be plans as well for a post-unification plebisite on the future fate of the republic, either as remaining
-as an autonomous republic of Ukraine or as an independent nation. If the option of unification is accepted, referendum or nonee, the Oriat-Kalmyk people must be 
+as an autonomous republic of Ukraine or as an independent nation. If the option of unification is accepted, referendum or none at all, the Oriat-Kalmyk people must be 
 encouraged to swear allegiance to Ukraine and to serve in the Armed Forces and the other uniformed organizations of the nation, and
 for the region, upon annexation to Ukraine as an autonomous republic, the government in Kyiv will guaranteee its full autonomy in like manner as in 
 Adygea, and all those Kalmyks who collaborated with Russia in war crimes and human rights abuses will be charged accordingly as well as in their participation
