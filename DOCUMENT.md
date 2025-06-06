@@ -122,9 +122,11 @@ these, a ban of all pro-Russian political parties and organizations in this repu
 In addition, parts of Tambov (11), Volgograd (12), Saratov (13) and Liptesk Oblasts (14) bordering the
 regions already mentioned shall be annexed to Ukraine postwar as well and the communities that are part of the
 areas affected will be fully integrated with it, and its population asked to swear allegiance to Ukraine and its
-Constitution, speak Ukrainian and serve in the AFU and the other uniformed organizations..
+Constitution, speak Ukrainian and serve in the AFU and the other uniformed organizations. People of these areas who
+have worked with the aggressor in the performance of war crimes, human rights abuses and other activities will
+be prosecuted accordingly upon official annexation of Ukraine in these areas.
 
-The autonomous republics of Kabardino-Balkaria (15) and Karachay-Cherkessia (16), also a part of the "Russian Federation", will be
+The autonomous republics of Kabardino-Balkaria and Karachay-Cherkessia, also a part of the "Russian Federation", will be
 assisted by Ukraine to help in their liberation from the Russian dominator and autocrat, and will be assisted in either
 preparing for full annexation as autonomous republics of Ukraine owing to their location as part of the historic Kuban, or to
 become fully independent nations, in either case Ukraine will contribite to helping for the restoration of their
@@ -135,8 +137,8 @@ and in creating and enforcing a ban of all pro-Russian politicial parties and or
 these regions as well as punishing accordingly all the individuals involved in these.
 
 A similar arrangement for either annexation with Ukraine or independence shall be planned with yet another part of the "Russian Federation", Astrakhan
-Oblast (17), wherein regardless of the case, Ukraine shall be the guarantor and protector of its freedom and independence and shall be ready to assist the
-region at all times in like manner as the republics and regions abovementioned.
+Oblast, wherein regardless of the case either for independence or unification, Ukraine shall be the guarantor and protector of its freedom and independence 
+and shall be ready to assist the region at all times in like manner as the republics and regions abovementioned.
 
 Any and all forms of military-use nuclear weapons shall not be allowed on these territories by the Parties involved in the Treaty as
 we as any test firing activities of the aformentioned.
@@ -199,7 +201,7 @@ No sactions are to be eased until the full implementation of the terms of this a
 
 ### 1st stage of easing sanctions
 
-- Any items related to living of normal citizens, such as food, medicine, and other basic necessities, will be allowedto be imported to Russia.
+- Any items related to living of normal citizens, such as food, medicine, and other basic necessities, will be allowed to be imported to Russia.
 
 ## Article 9. Conditions in the Black Sea and Azov Sea
 
