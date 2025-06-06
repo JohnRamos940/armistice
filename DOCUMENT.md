@@ -79,7 +79,7 @@ Armed Forces of Ukraine and the law enforcement, security and emergency organiza
 exercising thus obedience to the norms of the Constitution and laws of Ukraine and to the duly constituted authorities
 of the nation, and their commitment to contribute to the security and defense of the nation at large and cooperating
 with the Western Powers towards the goal of a brighter future and prosperous society finally free from the years of
-suffering and persecution incurred at the hands of the Russian occupier.
+suffering and persecution incurred at the hands of the Russian occupier. 
 
 In addition, upon the official retrocession of Crimea as constituent Autonomous Republic of Ukraine, the Crimean Tatar
 language shall be fully restored and education in it made mandatory alongside the Ukrainian language, and efforts made
@@ -94,9 +94,11 @@ by law.
 Much of Luhansk and Donetsk Oblasts, which were taken away from Ukraine to form so-called proxy republics by the
 assistance of the Armed Forces of Russia and its paramilitaries and its allies and supporters in Ukraine, will be
 returned to Ukraine and all those Russians and Ukrainians who helped in the secession of much of the territory of these
-oblasts from Ukraine will be punished, as well as any who have served in the Armed Forces and law enforcement organs in
+oblasts from Ukraine will be punished, as well as any who have served in the Armed Forces and law enforcement organs of Russia in
 these terriories (formerly the armed forces and law enforcement organizations of the so-called Donetsk and Luhansk
-People's Republics sponsored by Russia and illegially annexed into it by false referendum in 2022).
+People's Republics sponsored by Russia and illegially annexed into it by false referendum in 2022). However, recruitment to the AFU 
+and the other uniformed organizations shall be encouraged and made mandatory for everyone who has not helped in Russia's 
+war efforts in these regions of Ukraine under Russian occupation.
 
 The autonomous republics of Kabardino-Balkaria and Karachay-Cherkessia, also a part of the "Russian Federation", will be
 assisted by Ukraine to help in their liberation from the Russian dominator and autocrat, and will be assisted in either
@@ -104,6 +106,8 @@ preparing for full annexation as republics of Ukraine owing to their location as
 become fully independent nations, in either case Ukraine will contribite to helping for the restoration of their
 languages and the Circassian cultures and traditions in these territories suppressed and persecuted by Russia over the
 centuries.
+
+Any and all forms of military-use nuclear weapons shall not be allowed on these territories by the Parties involved.
 
 ![ukraine_and_bordering_oblasts.png](assets/ukraine_and_bordering_oblasts.png)
 
