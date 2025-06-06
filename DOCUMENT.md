@@ -36,7 +36,7 @@ world its rightful place as part of the territory of said nation, and the wishes
 in 1919 to unify it with the Ukrainian nation completing thus the wishes of Hrushevsky and others to unify all the lands
 wherein the Cossack people have been present throught history, the demand thus of many within Ukraine to unite all these
 areas, including those of the historic Kuban, to the Ukrainian nation, to consider formally officially acknowledge that
-Bilhorod (3), Kursk, Bryansk (4), Voronesk (5) and Rostov Oblasts (6), Krasnodar Krai (7) and Stavropol Krai (8), and the Republic of Adygea (9),
+Bilhorod (3), Kursk, Bryansk (4), Voronesk (5), Orel (6) and Rostov Oblasts (7), Krasnodar Krai (8) and Stavropol Krai (9), and the Republic of Adygea (10),
 all territories of the so-called Russian Federation, and all these being for many years, until the Holomodor of the
 1930s and beyond, the lands in which millions of Ukrainians lived and worked outside of the current borders of Ukraine
 as constituted by law, and given that these lands have been where the storied cultures and heroism of the Cossack nation
@@ -79,7 +79,8 @@ Armed Forces of Ukraine and the law enforcement, security and emergency organiza
 exercising thus obedience to the norms of the Constitution and laws of Ukraine and to the duly constituted authorities
 of the nation, and their commitment to contribute to the security and defense of the nation at large and cooperating
 with the Western Powers towards the goal of a brighter future and prosperous society finally free from the years of
-suffering and persecution incurred at the hands of the Russian occupier. 
+suffering and persecution incurred at the hands of the Russian occupier. Adygeans who have collaborated with Russia in
+the conduct of its war against Ukraine will be punished accordingly for their actions.
 
 In addition, upon the official retrocession of Crimea as constituent Autonomous Republic of Ukraine, the Crimean Tatar
 language shall be fully restored and education in it made mandatory alongside the Ukrainian language, and efforts made
@@ -103,28 +104,39 @@ People's Republics sponsored by Russia and illegially annexed into it by false r
 and the other uniformed organizations shall be encouraged and made mandatory for everyone who has not helped in Russia's 
 war efforts in these regions of Ukraine under Russian occupation.
 
-The autonomous republics of Kabardino-Balkaria and Karachay-Cherkessia, also a part of the "Russian Federation", will be
+Also, a similar arrangement will be made with the Republic of Kalmykia (10) following the either the conclusion of the war or 
+as the results of this planned armistice, both towards unification with Ukraine as given that parts of it have been the 
+historical part of the Ukrainian Cossack Kuban and that such an annexation as autonomous republic of Ukraine with the same treatment 
+of full autonomy as in Adygea would give it access to the Caspian Sea, but given the presence of the Congress of the Oirat-Kalmyk People 
+which demands for full indepedence, there will be plans as well for a post-unification plebisite on the future fate of the republic, either as remaining
+as an autonomous republic of Ukraine or as an independent nation. If the option of unification is accepted, the Oriat-Kalmyk people must be 
+encouraged to swear allegiance to Ukraine and to serve in the Armed Forces and the other uniformed organizations of the nation, and
+for the region, upon annexation to Ukraine as an autonomous republic, the government in Kyiv will guaranteee its full autonomy in like manner as in 
+Adygea, and all those Kalmyks who collaborated with Russia in war crimes and human rights abuses will be charged accordingly as well as in their participation
+in the war at large. Regardless of either the outcome of the planned future plebisite or the acceptance or rejection of unification
+by the regional government, Ukraine will help protect the cultures, religions and traditions of the Kalmyrk peoples and with any and 
+all forms of Western assistance help reverse decades of desertification in the republic and will also assist in the rebuilding of 
+their traditional ways of living, their economic, religious and cultural reconstruction and in other fields of endeavour. In addition to
+these, a ban of all pro-Russian political parties and organizations in this republic shall be in force regardless.
+
+In addition, parts of Tambov (11), Volgograd (12), Saratov (13) and Liptesk Oblasts (14) bordering the
+regions already mentioned shall be annexed to Ukraine postwar as well and the communities that are part of the
+areas affected will be fully integrated with it, and its population asked to swear allegiance to Ukraine and its
+Constitution, speak Ukrainian and serve in the AFU and the other uniformed organizations..
+
+The autonomous republics of Kabardino-Balkaria (15) and Karachay-Cherkessia (16), also a part of the "Russian Federation", will be
 assisted by Ukraine to help in their liberation from the Russian dominator and autocrat, and will be assisted in either
 preparing for full annexation as autonomous republics of Ukraine owing to their location as part of the historic Kuban, or to
 become fully independent nations, in either case Ukraine will contribite to helping for the restoration of their
 languages and the Circassian cultures and traditions in these territories suppressed and persecuted by Russia over the
 centuries. In both cases the Ukrainian nation will assist as well in their cultural rehabilitiation and development, as well as 
 in their economic and social matters, in removing any and all forms of recognition and representation of Russia in these territories, 
-and in creating and enforcing a ban of all pro-Russian politicial parties and organizations, and removing Russian political 
-parties and organizations from the aformentioned regions.
+and in creating and enforcing a ban of all pro-Russian politicial parties and organizations and removing them from 
+these regions as well as punishing accordingly all the individuals involved in these.
 
-Also, a similar arrangement will be made with the Republic of Kalmykia (10) following the either the conclusion of the war or 
-as the results of this planned armistice, both towards unification with Ukraine as given that parts of it have been the 
-historical part of the Ukrainian Cossack Kuban and that such an annexation as autonomous republic of Ukraine with the same treatment 
-of full autonomy as in Adygea would give it access to the Caspian Sea, but given the presence of the Congress of the Oirat-Kalmyk People 
-which demands for full indepedence, there will be plans as well for a post-unification plebisite on the future fate of the republic, either as 
-an autonomous republic of Ukraine or as an independent nation.  If the option of unification is accepted, the Oriat-Kalmyk people must be 
-encouraged to swear allegiance to Ukraine and to serve in the Armed Forces and the other uniformed organizations of the nation, and
-for the region, upon annexation to Ukraine as an autonomous republic, the government in Kyiv will guaranteee its full autonomy in like manner as in 
-Adygea. Regardless of either the outcome of the planned plebisite or the rejection of unification, Ukraine will help protect 
-the cultures, religions and traditions of the Kalmyrk peoples and with any and all forms of Western assistance help reverse decades of 
-desertification in the republic and will also assist in the rebuilding of their traditional ways of living, their economic 
-reconstruction and in other fields of endeavour.
+A similar arrangement for either annexation with Ukraine or independence shall be planned with yet another part of the "Russian Federation", Astrakhan
+Oblast (17), wherein regardless of the case, Ukraine shall be the guarantor and protector of its freedom and independence and shall be ready to assist the
+region at all times in like manner as the republics and regions abovementioned.
 
 Any and all forms of military-use nuclear weapons shall not be allowed on these territories by the Parties involved in the Treaty as
 we as any test firing activities of the aformentioned.
