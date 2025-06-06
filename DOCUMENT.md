@@ -108,9 +108,26 @@ assisted by Ukraine to help in their liberation from the Russian dominator and a
 preparing for full annexation as autonomous republics of Ukraine owing to their location as part of the historic Kuban, or to
 become fully independent nations, in either case Ukraine will contribite to helping for the restoration of their
 languages and the Circassian cultures and traditions in these territories suppressed and persecuted by Russia over the
-centuries.
+centuries. In both cases the Ukrainian nation will assist as well in their cultural rehabilitiation and development, as well as 
+in their economic and social matters, in removing any and all forms of recognition and representation of Russia in these territories, 
+and in creating and enforcing a ban of all pro-Russian politicial parties and organizations, and removing Russian political 
+parties and organizations from the aformentioned regions.
 
-Any and all forms of military-use nuclear weapons shall not be allowed on these territories by the Parties involved.
+Also, a similar arrangement will be made with the Republic of Kalmykia (10) following the either the conclusion of the war or 
+as the results of this planned armistice, both towards unification with Ukraine as given that parts of it have been the 
+historical part of the Ukrainian Cossack Kuban and that such an annexation as autonomous republic of Ukraine with the same treatment 
+of full autonomy as in Adygea would give it access to the Caspian Sea, but given the presence of the Congress of the Oirat-Kalmyk People 
+which demands for full indepedence, there will be plans as well for a post-unification plebisite on the future fate of the republic, either as 
+an autonomous republic of Ukraine or as an independent nation.  If the option of unification is accepted, the Oriat-Kalmyk people must be 
+encouraged to swear allegiance to Ukraine and to serve in the Armed Forces and the other uniformed organizations of the nation, and
+for the region, upon annexation to Ukraine as an autonomous republic, the government in Kyiv will guaranteee its full autonomy in like manner as in 
+Adygea. Regardless of either the outcome of the planned plebisite or the rejection of unification, Ukraine will help protect 
+the cultures, religions and traditions of the Kalmyrk peoples and with any and all forms of Western assistance help reverse decades of 
+desertification in the republic and will also assist in the rebuilding of their traditional ways of living, their economic 
+reconstruction and in other fields of endeavour.
+
+Any and all forms of military-use nuclear weapons shall not be allowed on these territories by the Parties involved in the Treaty as
+we as any test firing activities of the aformentioned.
 
 ![ukraine_and_bordering_oblasts.png](assets/ukraine_and_bordering_oblasts.png)
 
