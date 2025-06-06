@@ -89,7 +89,10 @@ force of an illegal referendum. Names of places in this region will be now in th
 the original place names that were later replaced by those in the Russian language, and every representation of Russia
 and its precesssors will be treated on a case to case basis. The Crimean Tatar population must also be encouraged to
 join the Armed Forces of Ukraine and the law enforcement, security and emergency organizations in the manner prescribed
-by law.
+by law. Russian, Ukrainian and Crimean Tatar collaborators to the Armed Forces of Russia and law enforcement organs of 
+the Russian state will be punished for working with the occupier in commiting war crimes and acts of abuse 
+of human rights against the population of the region especially against the Crimean Tatar community, otherwise, they must swear 
+allegiance to Ukraine and accept the duty of defending Ukraine's historic sovereign rights to this autonomous region.
 
 Much of Luhansk and Donetsk Oblasts, which were taken away from Ukraine to form so-called proxy republics by the
 assistance of the Armed Forces of Russia and its paramilitaries and its allies and supporters in Ukraine, will be
@@ -102,7 +105,7 @@ war efforts in these regions of Ukraine under Russian occupation.
 
 The autonomous republics of Kabardino-Balkaria and Karachay-Cherkessia, also a part of the "Russian Federation", will be
 assisted by Ukraine to help in their liberation from the Russian dominator and autocrat, and will be assisted in either
-preparing for full annexation as republics of Ukraine owing to their location as part of the historic Kuban, or to
+preparing for full annexation as autonomous republics of Ukraine owing to their location as part of the historic Kuban, or to
 become fully independent nations, in either case Ukraine will contribite to helping for the restoration of their
 languages and the Circassian cultures and traditions in these territories suppressed and persecuted by Russia over the
 centuries.
