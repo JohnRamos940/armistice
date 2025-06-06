@@ -109,22 +109,22 @@ as the results of this planned armistice, both towards unification with Ukraine 
 historical part of the Ukrainian Cossack Kuban and that such an annexation as autonomous republic of Ukraine with the same treatment 
 of full autonomy as in Adygea would give it access to the Caspian Sea, but given the presence of the Congress of the Oirat-Kalmyk People 
 which demands for full indepedence, there will be plans as well for a post-unification plebisite on the future fate of the republic, either as remaining
-as an autonomous republic of Ukraine or as an independent nation. If the option of unification is accepted, the Oriat-Kalmyk people must be 
+as an autonomous republic of Ukraine or as an independent nation. If the option of unification is accepted, referendum or nonee, the Oriat-Kalmyk people must be 
 encouraged to swear allegiance to Ukraine and to serve in the Armed Forces and the other uniformed organizations of the nation, and
 for the region, upon annexation to Ukraine as an autonomous republic, the government in Kyiv will guaranteee its full autonomy in like manner as in 
 Adygea, and all those Kalmyks who collaborated with Russia in war crimes and human rights abuses will be charged accordingly as well as in their participation
 in the war at large. Regardless of either the outcome of the planned future plebisite or the acceptance or rejection of unification
-by the regional government, Ukraine will help protect the cultures, religions and traditions of the Kalmyrk peoples and with any and 
+by the regional government with or without the referendum, Ukraine will help protect the cultures, religions and traditions of the Kalmyrk peoples and with any and 
 all forms of Western assistance help reverse decades of desertification in the republic and will also assist in the rebuilding of 
 their traditional ways of living, their economic, religious and cultural reconstruction and in other fields of endeavour. In addition to
 these, a ban of all pro-Russian political parties and organizations in this republic shall be in force regardless.
 
 In addition, parts of Tambov (11), Volgograd (12), Saratov (13) and Liptesk Oblasts (14) bordering the
-regions already mentioned shall be annexed to Ukraine postwar as well and the communities that are part of the
+regions already mentioned that are slated for total annexation shall be annexed to Ukraine postwar as well and the communities that are part of the
 areas affected will be fully integrated with it, and its population asked to swear allegiance to Ukraine and its
 Constitution, speak Ukrainian and serve in the AFU and the other uniformed organizations. People of these areas who
 have worked with the aggressor in the performance of war crimes, human rights abuses and other activities will
-be prosecuted accordingly upon official annexation of Ukraine in these areas.
+be prosecuted accordingly upon official annexation to the national territory of Ukraine in these areas.
 
 The autonomous republics of Kabardino-Balkaria and Karachay-Cherkessia, also a part of the "Russian Federation", will be
 assisted by Ukraine to help in their liberation from the Russian dominator and autocrat, and will be assisted in either
@@ -155,7 +155,8 @@ Any and all bodies of personnel killed on either side of the conflict shall be r
 
 ## Article 5. Return of civilians incl. kidnapped children
 
-TODO
+The Parties involved in the war will, in the in the period following the formal implementation of a ceasefire between them, must conduct as soon as possible efforts to return all civilians that are held in Russia and seized by its armed forces and law enforcement organizations, as well as civilians, back to Ukraine, including childen and youth that have been 
+kidnapped by the former.
 
 ## Article 6. War criminals to Hague
 
