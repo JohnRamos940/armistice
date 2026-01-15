@@ -165,7 +165,8 @@ TODO
 ### Leaderdship on government level
 
 - Vladimir Putin - President
-- Dmitry Medvedev - Prime Minister
+- Dmitry Medvedev - Prime Minister until 2020
+- Mikhail Mishustin - Prime Minister by the time of the beginning of Russia's invasion of Ukraine
 - Sergey Lavrov - Minister of Foreign Affairs
 
 ### Leadership on military level
